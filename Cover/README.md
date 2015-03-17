@@ -1,0 +1,1 @@
+This cover is modified from [Afinia H480 / UP PLUS 2 alternative Extruder Cover with or without Temperature Mod Case](http://www.thingiverse.com/thing:507343) by [ikumajp](http://www.thingiverse.com/ikumajp/about) which was originally shared under a CC-BY-SA licens.e
